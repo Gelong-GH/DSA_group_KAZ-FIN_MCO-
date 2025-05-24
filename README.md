@@ -1,1 +1,0 @@
-# DSA_group_KAZ-FIN_MCO-
